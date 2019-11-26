@@ -1,3 +1,3 @@
 # Univaz University
 
-Small online informatics university.
+Small online informatics espinalillo university.
