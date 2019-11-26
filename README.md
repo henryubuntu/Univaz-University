@@ -1,2 +1,3 @@
-# Univaz-University
-Univaz University
+# Univaz University
+
+Small online informatics university.
