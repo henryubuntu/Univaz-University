@@ -13,7 +13,9 @@ https://www.youtube.com/watch?v=31vLPnHKv38
 After this course, will be easier 4 u$, amass one trillion dollars, together.
 
 Being together: 
+
 is not an obligation, 
+
 is not an invitation, 
 is not a request, 
 is not a requirement, 
