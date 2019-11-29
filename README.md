@@ -8,4 +8,4 @@ https://www.youtube.com/watch?v=vcer8j3sMNw
 Part 02
 https://www.youtube.com/watch?v=31vLPnHKv38
 
-After this course, will be easier that together we amass one trillion dollars.
+After this course, will be easier 4 u$, together we amass one trillion dollars.
