@@ -42,6 +42,6 @@ is not an incentive,
 
 is not a choice,
 
-simply is something, that... if you like it... 
+simply...          is something...    that...     if you like it...  and feels good ;) ... 
 
-and feels good ;) ... is Ok ^_^
+is Ok ^_^
