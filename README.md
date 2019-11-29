@@ -10,7 +10,7 @@ https://www.youtube.com/watch?v=vcer8j3sMNw
 Part 02
 https://www.youtube.com/watch?v=31vLPnHKv38
 
-After this course, will be easier 4 u$, get into a secret project... ₑₐₛᵧ... together.
+After this course, will be easier 4 u$, get into secret projects... ₑₐₛᵧ... together.
 
 Being together: 
 
@@ -50,3 +50,5 @@ and feels good...
 ;) ... 
 
 is Ok ^_^
+
+And fix some things of the world, if you want to, in ₛₑ𝒸ᵣₑₜ.
