@@ -12,6 +12,7 @@ https://www.youtube.com/watch?v=31vLPnHKv38
 
 After this course, will be easier 4 u$, get into secret projects... ₑₐₛᵧ... together.
 
+
 Being together: 
 
 is not an obligation, 
@@ -50,5 +51,6 @@ and feels good...
 ;) ... 
 
 is Ok ^_^
+
 
 And fix some things of the world, if you want to, in ₛₑ𝒸ᵣₑₜ.
