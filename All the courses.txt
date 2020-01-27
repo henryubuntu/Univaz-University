@@ -21,7 +21,7 @@ Data Science:
 https://github.com/henryubuntu/Data-Science
 
 Big Data:
-For this you have to create your own directories for Big Data, this is one organization for example.
+For this you have to create your own directories for Big Data, this organization for example.
 
 https://github.com/henryubuntu/Big_Data
 
