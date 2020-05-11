@@ -1,5 +1,5 @@
 # Univaz University
-Sorry NSA I had a lot of stress, sorry for the Twitter, I dos not hace followers though,
+
 Online informatics University from Espinalillo, Coyuca de Benítez, Guerrero, México.
 
 4 kids, 4 adults, 4 all.
@@ -56,3 +56,8 @@ is Ok ^_^
 
 
 And fix some things of the world, if you want to, in ₛₑ𝒸ᵣₑₜ.
+
+Looking now for a sponsor to get a job or pay me money to take any courses I published, specially Data Analysis and time.
+
+I just fixed the code and ordered I did not learn it, so I AM looking for a sponsor to pay me while I learn it, funny but is the truth.
+
