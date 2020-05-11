@@ -1,5 +1,5 @@
 # Univaz University
-Sorry NSA I hoy a lot of stress, sorry for the Twitter, I dos not hace followers though,
+Sorry NSA I had a lot of stress, sorry for the Twitter, I dos not hace followers though,
 Online informatics University from Espinalillo, Coyuca de Benítez, Guerrero, México.
 
 4 kids, 4 adults, 4 all.
