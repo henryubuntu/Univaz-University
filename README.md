@@ -59,5 +59,5 @@ And fix some things of the world, if you want to, in ₛₑ𝒸ᵣₑₜ.
 
 Looking now for a sponsor to get a job or pay me money to take any courses I published, specially Data Analysis and time.
 
-I just fixed the code and ordered I did not learn it, so I AM looking for a sponsor to pay me while I learn it, funny but is the truth.
+I just fixed the code and ordered I did not learn it, so I am looking for a sponsor to pay me while I learn it, funny but is the truth.
 
