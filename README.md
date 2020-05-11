@@ -1,8 +1,10 @@
 # Univaz University
 
-Online informatics espinalillo university.
+Online informatics University from Espinalillo, Coyuca de Benítez, Guerrero, México.
 
 4 kids, 4 adults, 4 all.
+
+By Enrique Martínez Ríos (henryubuntu), enriquerios at mail.ru
 
 Part 01
 https://www.youtube.com/watch?v=vcer8j3sMNw
