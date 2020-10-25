@@ -1,6 +1,6 @@
 # Informatics Engineer Special Training
 
-By Enrique Martínez Ríos (henryubuntu), enriquerios at mail.ru
+By Enrique Martínez Ríos (henryubuntu)
 
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
