@@ -1,4 +1,4 @@
-# Online University
+# Informatics Engineer Special Training
 
 By Enrique Martínez Ríos (henryubuntu), enriquerios at mail.ru
 
