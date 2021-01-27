@@ -1,30 +1,30 @@
 Python:
-https://github.com/henryubuntu/Python
+https://github.com/henryubuntu/Python (PRIVATE)
 
 Go Programming Language:
-https://github.com/henryubuntu/Go-Programming-Language
+https://github.com/henryubuntu/Go-Programming-Language (PRIVATE)
 
 Java:
-https://github.com/henryubuntu/Java-SE-6-Student-Guide-and-Java-para-No-Programadores-code
-https://github.com/henryubuntu/All-SCJP-Sun-Certified-Programmer-for-Java-6-Study-Guide-code
-https://github.com/henryubuntu/Herbert-Schildt-Java-Beginner-guide-sixth-edition
-https://github.com/henryubuntu/Beginning-Java-8-Language-Features-Kishori-Sharan
+https://github.com/henryubuntu/Java-SE-6-Student-Guide-and-Java-para-No-Programadores-code (PRIVATE)
+https://github.com/henryubuntu/All-SCJP-Sun-Certified-Programmer-for-Java-6-Study-Guide-code (PRIVATE)
+https://github.com/henryubuntu/Herbert-Schildt-Java-Beginner-guide-sixth-edition  (PRIVATE)
+https://github.com/henryubuntu/Beginning-Java-8-Language-Features-Kishori-Sharan (PUBLIC)
 
 Herbert Schildt Java The Complete Reference Tenth 10 Edition SE 9 (I took down this repository code by a DMCA Takedown Notice Dec 17, 2020, 10:34 PM UTC) contact me to get this code organized at henryubuntu using gmail or at enriquerios with mail.ru
 
-https://github.com/henryubuntu/Core-Java-Se-9-for-the-Impatient-2nd-edition-Horstman-code
+https://github.com/henryubuntu/Core-Java-Se-9-for-the-Impatient-2nd-edition-Horstman-code (PRIVATE)
 
-https://github.com/henryubuntu/Java-Data-Structures-books-code
+https://github.com/henryubuntu/Java-Data-Structures-books-code (PRIVATE)
 
 Databases:
-https://github.com/henryubuntu/Databases
+https://github.com/henryubuntu/Databases (PRIVATE)
 
 Data Science:
-https://github.com/henryubuntu/Data-Science
+https://github.com/henryubuntu/Data-Science (PRIVATE)
 
 Big Data:
-For this you have to create your own directories for Big Data, this organization for example.
+For this you have to create your own directories for Big Data, this organization for example. 
 
-https://github.com/henryubuntu/Big_Data
+https://github.com/henryubuntu/Big_Data (PRIVATE)
 
 Just, take it easy, relax and take all the time you need, 0 rush.
