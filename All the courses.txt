@@ -1,3 +1,5 @@
+All the code is organized and no errors in the code, I share some examples of the organization and the book's code on request at enriquerios at mail.ru
+
 Python:
 https://github.com/henryubuntu/Python (PRIVATE)
 
@@ -8,7 +10,7 @@ Java:
 https://github.com/henryubuntu/Java-SE-6-Student-Guide-and-Java-para-No-Programadores-code (PRIVATE)
 https://github.com/henryubuntu/All-SCJP-Sun-Certified-Programmer-for-Java-6-Study-Guide-code (PRIVATE)
 https://github.com/henryubuntu/Herbert-Schildt-Java-Beginner-guide-sixth-edition  (PRIVATE)
-https://github.com/henryubuntu/Beginning-Java-8-Language-Features-Kishori-Sharan (PUBLIC)
+https://github.com/henryubuntu/Beginning-Java-8-Language-Features-Kishori-Sharan (PRIVATE) On request
 
 Herbert Schildt Java The Complete Reference Tenth 10 Edition SE 9 (I took down this repository code by a DMCA Takedown Notice Dec 17, 2020, 10:34 PM UTC) contact me to get this code organized at henryubuntu using gmail or at enriquerios with mail.ru
 
