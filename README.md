@@ -8,6 +8,8 @@ At the end of all this courses you will learn intuition, trust your instincts, k
 
 Keep your workspace and living room clean and your brain will do the rest automatically to remember better.
 
+I suggest to improve brain activity to ensure learning everything, get a super nintendo and play killer instinct, becasue the playability and learning skills in that game improve a lot brain activity to learn everything faster.
+
 Some of the authors book's code are, for example for Python:
 
 Tony Gaddis
