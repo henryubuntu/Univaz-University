@@ -1,4 +1,4 @@
-# Informatics Engineer Special Training
+# UNIVAZ UNIVERSITY - Informatics Engineer Special Training
 
 By Enrique Martínez Ríos (henryubuntu)
 
