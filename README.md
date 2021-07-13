@@ -4,7 +4,7 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
-Mensaje secreto para Pelé borrado. Fu. Sión!. Cletus your turn. https://www.youtube.com/watch?v=alkOU_hXfPM
+Mensaje secreto para Pelé borrado. Fu. Sión!. 24 turn. https://www.youtube.com/watch?v=6XGoVdkB4OM pero no 24 horas hee!
 
 Sí, está bien, todo lo bueno que me llega lo recibo así de bueno
 
