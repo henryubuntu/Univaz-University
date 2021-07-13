@@ -6,7 +6,7 @@ By Enrique Martínez Ríos (henryubuntu)
 
 Pelé. the great futbol player, Edson Arantes do Nascimento, please, if you read this, own FIFA with the new tournament of you know what of the sand places and paradise places, and tell that FIFA is no longer the owner of the futbol, you are, and create the tournament of you know what and be inmmensely rich and recover your health and everything. The owner of all of all told me, indirectly and directly, meaning, GOD, to be more exact, but he do not want to be named, and he say "Greathings!", and he laughs a lot.
 
-Yes, Pelé, I allow you to be the owner of FIFA, I am who I am; and I Enrique Martínez Ríos am just the mesenger. Ask them their papers, their business and all, and if they do not make you the owner and rich, tomorrow 14/07/2021, tell publicly the 15/07/2021 "Who in the U.S.A. could help me tie my shoes?" and they will know what to do. Ahí, si tu quieres cambiale el nombre, destruyela, o dí que se fué a la banca rota y que tu la vas a salvar creando tu propia empresa de futbol o lo que tu quieras.
+Yes, Pelé, I allow you to be the owner of FIFA, I am who I am; and I Enrique Martínez Ríos am just the mesenger. Ask them their papers, their business and all, and if they do not make you the owner and rich, tomorrow 14/07/2021, tell publicly the 15/07/2021 "Who in the U.S.A. could help me tie my shoes?" and they will know what to do. Ahí, si tu quieres cambiale el nombre, destruyela, o dí que se fué a la banca rota y que tu la vas a salvar creando tu propia empresa de futbol o lo que tu quieras. Rodinho para que? no tientes a DIOS con cosas mundanas ni vanas me dice o te va a castigar.
 
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
