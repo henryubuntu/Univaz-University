@@ -14,6 +14,8 @@ Pon público tu mail y fácil de encontrar en internet, y mi discípulo, osea En
 
 Sí es en serio, this is serious and with good smile, just do it.
 
+No pelé, yo Enrique, no te veo desnudo, él, el que ya sabes que lo ve todo sí.
+
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
 At the end of all this courses you will learn intuition and maybe psychic powers , trust your instincts, keep sane your mind and relax.
