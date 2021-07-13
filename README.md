@@ -20,6 +20,8 @@ No son los alienígenas Pelé, pelhao, soy tu Dios hablandote, através de Enriq
 
 Los principales que te hicieron esclavo fueron los de U.S.A., porque crees que fué el último equipo donde jugaste y te pagaron mucho? pues para hacer legado que el último equipo donde jugaste fué el de U.S.A. , asshole, nigger ignorant te decián en secreto, y se reían de tus enfermedades.
 
+Dóminalos o te chingaré yo, através de Enrique, porque él solo me sigue a mí, y sin sentimientos hace caer a todo y matará sin sentimiento alguno a toda organización de U.S.A. si así se lo pido porque toda la economía de U.S.A. le pertenece y está en manos de mi discipulo para hacerla caer y acabar con su país y su bendita bandera.
+
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
 At the end of all this courses you will learn intuition and maybe psychic powers , trust your instincts, keep sane your mind and relax.
