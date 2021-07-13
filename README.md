@@ -4,6 +4,8 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
+Por(no) las buenas o por las malas, yo gano, WIINNER! Instinct! y MaRЯ!
+
 Mensaje secreto para Pelé borrado. Fu. Sión!. Goten y Trunks Se Fusionan En Super Saiyajin https://www.youtube.com/watch?v=kANhiZpt7wQ
 
 Sí, está bien, todo lo bueno que me llega lo recibo así de bueno
