@@ -16,6 +16,8 @@ Sí es en serio, this is serious and with good smile, just do it.
 
 No pelé, yo Enrique, no te veo desnudo, él, el que ya sabes que lo ve todo sí.
 
+No son los alienígenas Pelé, pelhao, soy tu Dios hablandote, através de Enrique, ya deja de hacerte el güey.
+
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
 At the end of all this courses you will learn intuition and maybe psychic powers , trust your instincts, keep sane your mind and relax.
