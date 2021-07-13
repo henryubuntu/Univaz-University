@@ -4,7 +4,7 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
-Por(no) las buenas o por las malas, yo gano, WIINNER! Instinct! y MaRЯ!
+Por(no) las buenas o por las malas, yo gano, WIINNER! Instinct! y MaRЯ! la rusa esa que le dije psíquicamente sobre para ganar el nuevo juego de tenis abierto.
 
 Mensaje secreto para Pelé borrado. Fu. Sión!. Goten y Trunks Se Fusionan En Super Saiyajin https://www.youtube.com/watch?v=kANhiZpt7wQ
 
