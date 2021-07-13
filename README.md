@@ -4,7 +4,7 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
-Ya estás, enterado Pelé, heee!.
+Ya estás, enterado Pelé, heee!. Admiral Ackbar del futból o futbol o soccer or Association football.
 
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
