@@ -4,23 +4,7 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
-Pelé. the great futbol player, Edson Arantes do Nascimento, please, if you read this, own FIFA with the new tournament of you know what of the sand places and paradise places, and tell that FIFA is no longer the owner of the futbol, you are, and create the tournament of you know what and be inmmensely rich and recover your health and everything. The owner of all of all told me, indirectly and directly, meaning, GOD, to be more exact, but he do not want to be named, and he say "Greathings!", and he laughs a lot.
-
-Yes, Pelé, I allow you to be the owner of FIFA, I am who I am; and I Enrique Martínez Ríos am just the mesenger. Ask them their papers, their business and all, and if they do not make you the owner and rich, tomorrow 14/07/2021, tell publicly the 15/07/2021 "Who in the U.S.A. could help me tie my shoes?" and they will know what to do. Ahí, si tu quieres cambiale el nombre, destruyela, o dí que se fué a la banca rota y que tu la vas a salvar creando tu propia empresa de futbol o lo que tu quieras. Rodinho para que? no tientes a DIOS con cosas mundanas ni vanas me dice o te va a castigar.
-
-Primero una junta con los de la FIFA, exigeles, usa el videoclip de "Demands hummel the rock" en youtube primero y hablales a los de la FIFA después luego luego, sea en público o en privado, y ya sea como tú quieras, siendo lindho o siendo fuerte con ellos, dice "DIOS" que él es la FIFA también, así que tu verás como me hablas a mí, y dice "DIOS" soy tú "Pelé", y estoy en todo enterado.
-
-Pon público tu mail y fácil de encontrar en internet, y mi discípulo, osea Enrique Martínez Ríos, quien no tiene identificación oficial porque su nombre en mayúsculas debe llevar acentos y no tiene el sistema del INE acentos en sus nombre es él quien te habla, no ENRIQUE MARTINEZ RIOS, ese quien sabe quien es, osea yo (él, el que ya sabes), te enviaré un mail, diciendote lo mismo, porque tú eres así, de repite y repite las cosas.
-
-Sí es en serio, this is serious and with good smile, just do it.
-
-No pelé, yo Enrique, no te veo desnudo, él, el que ya sabes que lo ve todo sí.
-
-No son los alienígenas Pelé, pelhao, soy tu Dios hablandote, através de Enrique, ya deja de hacerte el güey.
-
-Los principales que te hicieron esclavo fueron los de U.S.A., porque crees que fué el último equipo donde jugaste y te pagaron mucho? pues para hacer legado que el último equipo donde jugaste fué el de U.S.A. , asshole, nigger ignorant te decián en secreto, y se reían de tus enfermedades.
-
-Dóminalos o te chingaré yo, através de Enrique, porque él solo me sigue a mí, y sin sentimientos hace caer a todo y matará sin sentimiento alguno a toda organización de U.S.A. si así se lo pido porque toda la economía de U.S.A. le pertenece y está en manos de mi discípulo para hacerla caer y acabar con su país y su bendita bandera.
+Ya estás, enterado Pelé, heee!.
 
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
