@@ -18,6 +18,8 @@ No pelé, yo Enrique, no te veo desnudo, él, el que ya sabes que lo ve todo sí
 
 No son los alienígenas Pelé, pelhao, soy tu Dios hablandote, através de Enrique, ya deja de hacerte el güey.
 
+Los principales que te hicieron esclavo fueron los de U.S.A., porque crees que fué el último equipo donde jugaste y te pagaron mucho? pues para hacer legado que el último equipo donde jugaste fué el de U.S.A. , asshole, nigger ignorant te decián en secreto, y se reían de tus enfermedades.
+
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
 At the end of all this courses you will learn intuition and maybe psychic powers , trust your instincts, keep sane your mind and relax.
