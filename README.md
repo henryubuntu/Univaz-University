@@ -4,7 +4,7 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
-Mensaje secreto para Pelé borrado. Fu. Sión.
+Mensaje secreto para Pelé borrado. Fu. Sión!.
 
 Sí, está bien, todo lo bueno que me llega lo recibo así de bueno
 
