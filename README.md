@@ -4,7 +4,7 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
-24 turn. https://www.youtube.com/watch?v=6XGoVdkB4OM pero no 24 horas hee!
+Fu, sión de MOB girls con jew mob!
 
 Sí, está bien, todo lo bueno que me llega lo recibo así de bueno
 
