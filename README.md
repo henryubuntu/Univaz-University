@@ -8,6 +8,8 @@ Pelé. the great futbol player, Edson Arantes do Nascimento, please, if you read
 
 Yes, Pelé, I allow you to be the owner of FIFA, I am who I am; and I Enrique Martínez Ríos am just the mesenger. Ask them their papers, their business and all, and if they do not make you the owner and rich, tomorrow 14/07/2021, tell publicly the 15/07/2021 "Who in the U.S.A. could help me tie my shoes?" and they will know what to do. Ahí, si tu quieres cambiale el nombre, destruyela, o dí que se fué a la banca rota y que tu la vas a salvar creando tu propia empresa de futbol o lo que tu quieras. Rodinho para que? no tientes a DIOS con cosas mundanas ni vanas me dice o te va a castigar.
 
+Primero una junta con los de la FIFA, exigeles, usa el videoclip de "Demands hummel the rock" en youtube primero y hablales a los de la FIFA después luego luego, sea en público o en privado, y ya sea como tú quieras, siendo lindho o siendo fuerte con ellos, dice "DIOS" que él es la FIFA también, así que tu verás como me hablas a mí, y dice "DIOS" soy tú "Pelé", y estoy en todo enterado.
+
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
 At the end of all this courses you will learn intuition and maybe psychic powers , trust your instincts, keep sane your mind and relax.
