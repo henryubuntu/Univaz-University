@@ -10,6 +10,8 @@ Yes, Pelé, I allow you to be the owner of FIFA, I am who I am; and I Enrique Ma
 
 Primero una junta con los de la FIFA, exigeles, usa el videoclip de "Demands hummel the rock" en youtube primero y hablales a los de la FIFA después luego luego, sea en público o en privado, y ya sea como tú quieras, siendo lindho o siendo fuerte con ellos, dice "DIOS" que él es la FIFA también, así que tu verás como me hablas a mí, y dice "DIOS" soy tú "Pelé", y estoy en todo enterado.
 
+Pon público tu mail y fácil de encontrar en internet, y mi discípulo, osea Enrique, osea yo, te enviaré un mail, diciendote lo mismo, porque tú eres así, de repite y repite las cosas.
+
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
 At the end of all this courses you will learn intuition and maybe psychic powers , trust your instincts, keep sane your mind and relax.
