@@ -4,10 +4,6 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
-Fu, sión de MOB girls con jew mob! 0:22
-
-Sí, está bien, todo lo bueno que me llega lo recibo así de bueno
-
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
 At the end of all this courses you will learn intuition and maybe psychic powers , trust your instincts, keep sane your mind and relax.
