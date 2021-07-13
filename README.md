@@ -4,7 +4,7 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
-Por(no) las buenas o por las malas, yo gano, WIINNER! Instinct! y MaRЯ! la rusa esa que le dije psíquicamente para ganar el nuevo juego de tenis abierto. No Serena, no eres la única y tu hermana con cosas secretas para ganar el nuevo abierto, yo nunca te dije que serías la única en darte secretos de INFANTES de marina.
+Por(NO ;) las buenas o por las malas, yo gano, WIINNER! Instinct! y MaRЯ! la rusa esa que le dije psíquicamente para ganar el nuevo juego de tenis abierto. No Serena, no eres la única y tu hermana con cosas secretas para ganar el nuevo abierto, yo nunca te dije que serías la única en darte secretos de INFANTES de marina.
 
 Mensaje secreto para Pelé borrado. Fu. Sión!. Goten y Trunks Se Fusionan En Super Saiyajin https://www.youtube.com/watch?v=kANhiZpt7wQ
 
