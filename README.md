@@ -4,7 +4,7 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
-Pelé. the great futbol player, Edson Arantes do Nascimento, please, if you read this, own FIFA with the new tournament of you know what of the sand places and paradise places, and tell that FIFA is no longer the owner of the futbol, you are and create the tournment of you know what and be inmmensely rich and recover your health and everything. The owner of all of all told me, indirectly and directly, meaning, GOD, to be more exact, buth he do not want to be named, and he say "Greathings!", and he laughs a lot.
+Pelé. the great futbol player, Edson Arantes do Nascimento, please, if you read this, own FIFA with the new tournament of you know what of the sand places and paradise places, and tell that FIFA is no longer the owner of the futbol, you are and create the tournment of you know what and be inmmensely rich and recover your health and everything. The owner of all of all told me, indirectly and directly, meaning, GOD, to be more exact, but he do not want to be named, and he say "Greathings!", and he laughs a lot.
 
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
