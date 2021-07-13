@@ -12,6 +12,8 @@ Primero una junta con los de la FIFA, exigeles, usa el videoclip de "Demands hum
 
 Pon público tu mail y fácil de encontrar en internet, y mi discípulo, osea Enrique, osea yo, te enviaré un mail, diciendote lo mismo, porque tú eres así, de repite y repite las cosas.
 
+Sí es en serio, this is serious and with good smile, just do it.
+
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
 At the end of all this courses you will learn intuition and maybe psychic powers , trust your instincts, keep sane your mind and relax.
