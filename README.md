@@ -10,7 +10,7 @@ Yes, Pelé, I allow you to be the owner of FIFA, I am who I am; and I Enrique Ma
 
 Primero una junta con los de la FIFA, exigeles, usa el videoclip de "Demands hummel the rock" en youtube primero y hablales a los de la FIFA después luego luego, sea en público o en privado, y ya sea como tú quieras, siendo lindho o siendo fuerte con ellos, dice "DIOS" que él es la FIFA también, así que tu verás como me hablas a mí, y dice "DIOS" soy tú "Pelé", y estoy en todo enterado.
 
-Pon público tu mail y fácil de encontrar en internet, y mi discípulo, osea Enrique, osea yo, te enviaré un mail, diciendote lo mismo, porque tú eres así, de repite y repite las cosas.
+Pon público tu mail y fácil de encontrar en internet, y mi discípulo, osea Enrique Martínez Ríos, quien no tiene identificación oficial porque su nombre en mayúsculas debe llevar acentos y no tiene el sistema del INE acentos en sus nombre es él quien te habla, no ENRIQUE MARTINEZ RIOS, ese quien sabe quien es, osea yo (él, el que ya sabes), te enviaré un mail, diciendote lo mismo, porque tú eres así, de repite y repite las cosas.
 
 Sí es en serio, this is serious and with good smile, just do it.
 
@@ -20,7 +20,7 @@ No son los alienígenas Pelé, pelhao, soy tu Dios hablandote, através de Enriq
 
 Los principales que te hicieron esclavo fueron los de U.S.A., porque crees que fué el último equipo donde jugaste y te pagaron mucho? pues para hacer legado que el último equipo donde jugaste fué el de U.S.A. , asshole, nigger ignorant te decián en secreto, y se reían de tus enfermedades.
 
-Dóminalos o te chingaré yo, através de Enrique, porque él solo me sigue a mí, y sin sentimientos hace caer a todo y matará sin sentimiento alguno a toda organización de U.S.A. si así se lo pido porque toda la economía de U.S.A. le pertenece y está en manos de mi discipulo para hacerla caer y acabar con su país y su bendita bandera.
+Dóminalos o te chingaré yo, através de Enrique, porque él solo me sigue a mí, y sin sentimientos hace caer a todo y matará sin sentimiento alguno a toda organización de U.S.A. si así se lo pido porque toda la economía de U.S.A. le pertenece y está en manos de mi discípulo para hacerla caer y acabar con su país y su bendita bandera.
 
 A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
