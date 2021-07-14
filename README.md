@@ -4,13 +4,15 @@ Created at Acapulco, incremented at Espinalillo.
 
 By Enrique Martínez Ríos (henryubuntu)
 
-A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
++ A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
-At the end of all this courses you will learn intuition and maybe psychic powers , trust your instincts, keep sane your mind and relax.
++ At the end of all this courses you will learn intuition and maybe psychic powers, trust your instincts, keep sane your mind and relax.
 
-Keep your workspace and living room clean and your brain will do the rest automatically to remember better.
++ Having no people to interact will be a problem if you do not do it.
 
-I suggest to improve brain activity to ensure learning everything, get a super nintendo and play killer instinct, becasue the playability and learning skills in that game improve a lot brain activity to learn everything faster.
++ Keep your workspace and living room clean and your brain will do the rest automatically to remember better.
+
++ I suggest to improve brain activity to ensure learning everything, get a super nintendo and play killer instinct, becasue the playability and learning skills in that game improve a lot brain activity to learn everything faster.
 
 Some of the authors book's code are, for example for Python:
 
