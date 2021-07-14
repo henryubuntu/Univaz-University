@@ -465,3 +465,5 @@ Gavin Roy
 Lovisa Johansson
 
 Dana Powers
+
+God messenger have no side, just " " by his side. " "=GOD, and his side is all sides, with just the necessary evil.
