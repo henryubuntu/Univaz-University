@@ -8,7 +8,7 @@ By Enrique Martínez Ríos (henryubuntu)
 
 + At the end of all this courses you will learn intuition and maybe psychic powers, trust your instincts, keep sane your mind and relax.
 
-+ Having no people to interact will be a problem if you do not do it.
++ Having no people to interact with while making the training, will be a problem if you do not do it, so I suggest to relax also talking with other people not just writing.
 
 + Keep your workspace and living room clean and your brain will do the rest automatically to remember better.
 
