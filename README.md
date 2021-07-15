@@ -6,7 +6,7 @@ By Enrique Martínez Ríos (henryubuntu)
 
 + A series of courses to learn Java, C, Python, Databases, Data Science, Big Data.
 
-+ I suggest as I first say in this progamming course to save the money by having the job of your dreams or your own objectives to complete parts or all of these courses and or this training, to together rule the world and change it for good and do things in secret, and other things together that must be done to be done publicly to be officially recognized like countries and other things.
++ I suggest as I first wrote in the beginnings of these progamming courses, specifically in the Python course (as I remember), to save the money when you get the job of your dreams or your own objectives completed of learning parts or all of these courses and/or this training completely, to together rule the world and change it for good, and do things in secret, and other things together that must be done publicly to be officially recognized, like countries and other things, to keep the balance.
 
 + At the end of all this courses you will learn intuition and maybe psychic powers, trust your instincts, keep sane your mind and relax.
 
