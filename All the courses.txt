@@ -1,4 +1,4 @@
-All the code is organized and no errors in the code, I share some examples of the organization and the book's code on request at enriquerios at mail.ru
+All the code is organized and no errors in the code.
 
 Python:
 https://github.com/henryubuntu/Python 
@@ -9,10 +9,7 @@ https://github.com/henryubuntu/Go-Programming-Language
 Java:
 https://github.com/henryubuntu/Java-SE-6-Student-Guide-and-Java-para-No-Programadores-code 
 https://github.com/henryubuntu/All-SCJP-Sun-Certified-Programmer-for-Java-6-Study-Guide-code 
-https://github.com/henryubuntu/Herbert-Schildt-Java-Beginner-guide-sixth-edition  (PRIVATE)
-https://github.com/henryubuntu/Beginning-Java-8-Language-Features-Kishori-Sharan (PRIVATE) 
-
-Herbert Schildt Java The Complete Reference Tenth 10 Edition SE 9 (I took down this repository code by a DMCA Takedown Notice Dec 17, 2020, 10:34 PM UTC) contact me to get this code organized at henryubuntu using gmail or at enriquerios with mail.ru
+https://github.com/henryubuntu/Beginning-Java-8-Language-Features-Kishori-Sharan 
 
 https://github.com/henryubuntu/Core-Java-Se-9-for-the-Impatient-2nd-edition-Horstman-code 
 
@@ -26,7 +23,6 @@ https://github.com/henryubuntu/Data-Science
 
 Big Data:
 For this you have to create your own directories for Big Data, this organization for example. 
-
 https://github.com/henryubuntu/Big_Data 
 
 Just, take it easy, relax and take all the time you need, 0 rush.
